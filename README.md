@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me +254 782203709 or Instagram @vib3_.with.mos3s
 - 😄 Pronouns: He
-- ⚡ Fun fact: I am very fun to work with and very social. Forgot to mention that I am a christian and born-again christian for that fact.
+- ⚡ Fun fact: I am very fun to work with and very social. 
 - A very fun and full of ideas to give out.
 
 <!---
